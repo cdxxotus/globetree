@@ -1,0 +1,5 @@
+Le fraisier est une plante qui est généralement greffée sur elle-même (auto-greffage) ou propagée par bouturage de stolons. Il est rarement greffé sur d'autres plantes en raison de son système racinaire particulier et de son cycle de vie court.\
+Cependant, si vous souhaitez greffer un fraisier sur un autre porte-greffe, vous devez choisir une plante qui soit étroitement liée au fraisier et qui partage des caractéristiques physiologiques similaires. Dans ce cas, les hôtes potentiels pourraient être d'autres espèces de la famille des Rosaceae, telles que la ronce (Rubus spp.), la framboise (Rubus idaeus) ou l'amélanchier (Amelanchier spp.).\
+Il est important de noter que le succès de la greffe dépendra de la compatibilité entre le porte-greffe et le greffon, ainsi que des techniques de greffage utilisées. La greffe du fraisier est généralement difficile à réaliser et peu pratiquée en raison des taux de réussite relativement faibles et du coût élevé de la production des plants greffés. Le bouturage des stolons est donc la méthode de propagation la plus couramment utilisée pour les fraisiers.
+
+<br>

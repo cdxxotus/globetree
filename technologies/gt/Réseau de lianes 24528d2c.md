@@ -1,0 +1,2 @@
+- permet la creation d'un reseau vasculaire de distribution de nutriments et eau
+- les plantes y sont grefees
